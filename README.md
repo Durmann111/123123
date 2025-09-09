@@ -1,1 +1,2 @@
-SOSI ZHOPY LOLOLOLO
+отсоси хуйца еблан тупой 
+
